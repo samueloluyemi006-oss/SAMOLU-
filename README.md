@@ -1,2 +1,0 @@
-# SAMOLU-
-Printing and design 
